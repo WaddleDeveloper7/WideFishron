@@ -1,3 +1,3 @@
-coded by me
-ya
-im kinda bad at html lol
+Coded by WaddleDeveloper7
+Credit to Terraria for images
+(Great game, btw you should play it)
